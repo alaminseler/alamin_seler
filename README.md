@@ -1,8 +1,6 @@
-(https://pbs.twimg.com/profile_banners/1426149080728686597/1643202610/1080x360)
+![I am Digital marketer & Shopify developer](https://pbs.twimg.com/profile_banners/1426149080728686597/1643202610/1080x360)
 ### Hi there 👋, my name is Al-Amin
 #### I am Digital marketer & Shopify developer
-![I am Digital marketer & Shopify developer]
-
 Hello, Welcome to my profile. I am Al-Amin a professional digital marketer and Shopify developer from Bangladesh with over 4 years of experience. I have been working in this field for a couple of years. I completed many projects well done. So I can do almost everything in Digital Marketing. I'm able to do for my clients all the sections of Digital Marketing especially.
 ...........My Services........
 ➤ Social Media Marketing 
